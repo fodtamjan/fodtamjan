@@ -40,6 +40,7 @@ Célom, hogy ügyfeleim:
 
 ## Kapcsolat
 
-📞 **Telefon:** 06 30 5005 72  
+📞 **Telefon:** 06 30 5005 729  
 📧 **E-mail:** info@menedzserwebshop.site  
 🌐 **Web:** [https://menedzserwebshop.site](https://menedzserwebshop.site)
+
